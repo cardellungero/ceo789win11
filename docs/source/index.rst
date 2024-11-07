@@ -1,4 +1,4 @@
- Nguyễn Bá Tuấn - CEO 789Win Người Sáng Lập Nhà Cái Thành Công
+Nguyễn Bá Tuấn - CEO 789Win Người Sáng Lập Nhà Cái Thành Công
 ===================================
 
 `Nguyễn Bá Tuấn <https://789winx.net/ceo-789win-nguyen-ba-tuan/>`_ CEO của 789Win, là một nhà lãnh đạo trẻ sinh năm 1995 tại Nghệ An. Anh đã vượt qua nhiều khó khăn trong cuộc sống để xây dựng nhà cái 789Win trở thành một thương hiệu cá cược trực tuyến uy tín và chất lượng. 
